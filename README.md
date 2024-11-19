@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eajakes
 - 👀 I’m interested in web development
-- 🌱 I’m currently learning getting more experience
+- 🌱 I’m currently learning and getting more experience
 - 💞️ I’m looking to collaborate on any big valuable project
 - 📫 How to reach me on IG @eajakes @FB EA Jakes
 - 😄 Pronouns: Jakes
